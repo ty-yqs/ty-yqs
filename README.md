@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @ty-yqs
+👋 Hi, I’m @ty-yqs
